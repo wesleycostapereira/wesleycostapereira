@@ -31,7 +31,7 @@
 
 ## 📫 Conecte-se comigo
 [![LinkedIn] https://www.linkedin.com/in/wesley-costa-pereira-1400251ab?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BkPpOh2RXSXKo7T3mL5ms6Q%3D%3D 
-[![Email](wesleycostapereira4@gmail.com)  
+[![Email] wesleycostapereira4@gmail.com
 
 ---
 
